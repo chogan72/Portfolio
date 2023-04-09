@@ -1,1 +1,1 @@
-Thank you for checking out my Portfolio - https://cwhogan.com
+Thank you for checking out my portfolio. You can view the webpage at https://cwhogan.com.
